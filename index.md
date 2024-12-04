@@ -6,6 +6,6 @@ Zofia Ahmad (she/her) is a PhD student who studies the history of trade, empire,
 
 **How to Contact Me**
 
-Zofia Ahmad (She/her(
+Zofia Ahmad (She/her)
 
 Email: <zahmad@iu.edu>
